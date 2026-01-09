@@ -1,1 +1,1 @@
-<img width="1003" height="727" alt="image" src="https://github.com/user-attachments/assets/ffd2f262-d6e5-4850-8947-e858e0d9b293" />
+<img width="1003" height="727" src="https://github.com/Blackfire-IamaPineapple24/Stupid/blob/main/Annotation%202025-12-31%20142455.png?raw=true" />
